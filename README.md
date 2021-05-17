@@ -4,4 +4,4 @@
 Selamat datang di Belajar bareng, sebuat wadah untuk mewujudkan mimpi bersama kemajuan Bangsa.
 
 
-## Temukan lebih lanjut 🌎: 
+## Temukan lebih lanjut ...🌎: 
