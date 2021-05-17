@@ -5,3 +5,6 @@ Selamat datang di Belajar bareng, sebuat wadah untuk mewujudkan mimpi bersama ke
 
 
 ## Temukan lebih lanjut ...🌎: 
+
+- Facebook
+- Twitter
